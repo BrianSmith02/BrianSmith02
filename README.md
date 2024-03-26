@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BrianSmith02
-- 👀 I’m interested in ... Programming, 
+- 👀 I’m interested in ... Programming, Coding, Sofware Development 
 - 🌱 I’m currently learning ... AI programming 
 - 💞️ I’m looking to collaborate on ... On any proejects 
 - 📫 How to reach me ... bsmith9348@gmail.com
